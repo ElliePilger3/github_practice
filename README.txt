@@ -1,0 +1,1 @@
+Good morrow, fair traveler! How faireth the sun upon thy skin this finest of mornings!
